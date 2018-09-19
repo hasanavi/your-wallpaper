@@ -1,2 +1,2 @@
 # your-wallpaper
-Your unique and personalised wallpaper solution that changes everyday
+Your unique and personalised desktop wallpaper solution that changes everyday
